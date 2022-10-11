@@ -1,10 +1,10 @@
-- 👋 Hi, I’m @ogulcandev0
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+Discord'ta bot yazılımı , yapımı her ney ise o şey ile ilgilenmekteyim.
 
-<!---
-ogulcandev0/ogulcandev0 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+🎉 Soğloys#1000 (838017202694651916)
+🎉 sogloys#3977  (772537392154411008)
+
+Yukarıdakilerde hesaplarım.
+
+https://media.discordapp.net/attachments/980843521370103848/1029370020960141332/unknown.png
+---------------------------------------------------------------
+https://media.discordapp.net/attachments/980843521370103848/1029370203865350204/unknown.png
